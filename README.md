@@ -1,2 +1,2 @@
 # Coba-Branch
-Latihan sampai jago dong
+Latihan sampai jago dong yaaa
